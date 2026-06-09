@@ -1,4 +1,4 @@
-
+baddies automatic Script is the best baddies Script, featuring auto-collect and no clip. Safe and powerful for all your needs.
 
 
 
